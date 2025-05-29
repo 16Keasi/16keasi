@@ -20,7 +20,16 @@
 ***
 
 
-<img src="https://media.tenor.com/8iHC2NM9ZA0AAAP1/what-just-happened-spider-man-far-from-home.mp4" alt="GIF" width="500px"/>
+<img src="https://i.pinimg.com/originals/ed/39/f1/ed39f1a5500ea0ef6f0edbe9faaca976.gif" alt="GIF" width="500px"/>
+
+<h4>PERFIL</h4>
+
+- X: [Twitter](https://x.com/tomholland1996?lang=ga) 📱
+- Ins: [Instagram](https://www.instagram.com/tomholland2013/?hl=es) 📱
+- TT: [Tik tok](https://www.tiktok.com/@realltomholland?lang=es) 📱
+
+ ***
  
+<img src="https://img.buzzfeed.com/buzzfeed-static/static/2022-02/8/13/asset/90b03a724397/anigif_sub-buzz-3972-1644327975-8.gif" alt="GIF" width="500px"/>
 
 
